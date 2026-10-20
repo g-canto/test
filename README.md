@@ -1,1 +1,3 @@
-Wilberth Yussef Solís Cruz
+Guillermo Canto
+Daniel Chan
+Wilberth Solís
